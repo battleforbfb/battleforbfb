@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @battleforbfb, or should i say.. camila!
-- (nicknames: carmy/camila/cami)
+- 👋 Hi, I’m @battleforbfb, or should i say,,charlie! 
+- (nicknames: charlie/charly)
 - 👀 I’m interested in bfdi/tpot/bfdia, ii, ab, ect.
 - 🌱 I’m currently learning english a bit!
-- 📫 How to find me: on ponytown or in roblox!
-- 😄 Pronouns: she/her/they/them
+- 📫 How 2 find me: Roblox (tucuosabeqyo7363)
+- 😄 Pronouns: any pronouns ^_^
