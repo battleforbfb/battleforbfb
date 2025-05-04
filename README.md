@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @battleforbfb, or should i say,,charlie! 
-- (nicknames: charlie/charly)
-- 👀 im into osc, dw, bs, ect.
-- 🌱 I’m urrently learning English ^o^!
-- 📫 where 2 find me: Roblox (tucuosabeqyo7363)
-- 😄 Pronouns: any pronouns ^_^
+Ships i like ^_^;;
+Nita x Jessie (brawlstars)
+Gigi x Connie (dandys world)
+Poppy x Boxten/Scraps (dandys world)
+Vee/Tisha x Shelly
+And more!
+-------------------------------------------------- sorry if you hate one of these ships °n°“
