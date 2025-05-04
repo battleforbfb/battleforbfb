@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @battleforbfb, or should i say,,charlie! 
 - (nicknames: charlie/charly)
-- 👀 I’m interested in bfdi/tpot/bfdia, ii, ab, ect.
-- 🌱 I’m currently learning english a bit!
-- 📫 How 2 find me: Roblox (tucuosabeqyo7363)
+- 👀 im into osc, dw, bs, ect.
+- 🌱 I’m urrently learning English ^o^!
+- 📫 where 2 find me: Roblox (tucuosabeqyo7363)
 - 😄 Pronouns: any pronouns ^_^
